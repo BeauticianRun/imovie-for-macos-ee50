@@ -1,4 +1,4 @@
-# 
+# Enhance iMovie for macOS with iMovie for macOS rare Overlay: AI-upscaling & sound-design, the #1 overlay. Includes AI-upscaling and sound-design for a smoother and more creative
 
 
 
